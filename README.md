@@ -1,2 +1,2 @@
 # omg
-that's a special try forlivingston
+that's a special try for livingston
